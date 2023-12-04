@@ -4,7 +4,7 @@
 
 ### Installation
 
-Click to [Link](https://pippop.github.io) 
+Click to [Link](https://vanhocpham.com/love-story) 
 
 
 > For important persion
